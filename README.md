@@ -1,4 +1,6 @@
-un
-==
+create a PullRequest to earn your first UnCoin!
 
-UnGit
+1 UnCoin:
+ * RaWa
+
+FriPa JoKo AlJo RaLi EtAi?
